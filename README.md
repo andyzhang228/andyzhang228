@@ -1,4 +1,4 @@
-- 👀 Hi, I’m @andyzhang228
+- 👀 Hi, I’m Andy
 
 
 <!---
